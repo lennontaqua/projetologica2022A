@@ -1,0 +1,1 @@
+# projetologica2022A
